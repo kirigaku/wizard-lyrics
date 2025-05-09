@@ -13,3 +13,5 @@ Lyrics for the vkei band wizard.
 
 are all taken from the website (https://m-pe.tv/u/m/novel/?uid=sadiexkei&id=2&act=viewChapter&CID=1&PHPSESSID=r456r1qmbnph62iprfetmfpbn5). Everything else is from Joysounds.
 I thought it was important to have their lyrics in one place. I hope their songs are listened to more even if Kaito is gone.
+
+(also me being an EOP is shameful....orz)
